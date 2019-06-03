@@ -1,2 +1,2 @@
-# DD
-Good or bad, this is democracy
+# Direct Democrac Platform
+
