@@ -1,2 +1,2 @@
-# Direct Democrac Platform
+# Direct Democratic Platform
 
